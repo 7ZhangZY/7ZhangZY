@@ -33,5 +33,5 @@ I have a deep fascination with the potential of AI, and my ultimate dream is to 
 
 Feel free to explore my repositories, contribute, or collaborate on projects. I'm always open to new ideas and partnerships. Let’s create the future of AI together!
 
-- **Email**: [18997558607@163.com]
+- **Email**: 18997558607@163.com
 
